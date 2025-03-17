@@ -1,3 +1,2 @@
 # References
-
-* octocat 1 😈
+- Contact me for references
